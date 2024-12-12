@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any python project to get some skills
 - 📫 How to reach me martin.ondra85@gmail.com
 - 😄 Pronouns: his/him
-- ⚡ Fun fact: I'm 40 and happy with my belowed girlfriend Dáda
+- ⚡ Fun fact: I'm 40 and happy with my beloved girlfriend Dáda
 
 <!---
 mixxycze/mixxycze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
